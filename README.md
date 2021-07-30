@@ -1,4 +1,10 @@
 # vscode-demo
 This is so amazing
 I love VS Studio
-Happy Friday too
+
+
+
+doo dee dah
+Sunshine outside
+
+Changes changes changes
